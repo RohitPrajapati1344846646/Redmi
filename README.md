@@ -1,0 +1,2 @@
+# Redmi
+Phone hack
